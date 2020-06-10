@@ -13,5 +13,5 @@
 <br/>
  **In fact the final effect is _fine_, i did not expect the colour can be so pure and fabulous !!! 💜 💙**
  <br/>
- AND checkout my personal site ~ [EVA is HERE](https://evaleee.github.io/evalee-s/site-1.html)]🔫(
+ AND checkout my personal site ~ [EVA is HERE](https://evaleee.github.io/evalee-s/site-1.html)]🔫
                      
